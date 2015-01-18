@@ -99,12 +99,10 @@ impeachment, the officer will immediately be stripped of his or her position. Th
 remaining executive may choose to call an immediate by-election to replace that officer. 
 
 ##Meetings 
-We will hold monthly general meetings and bi-weekly executive meetings. The first 
+We will hold weekly general meetings and monthly executive meetings. The first 
 meeting of the following term will be set up by the outgoing executive. At that meeting 
 subsequent meeting times and locations will be set. Meeting times and dates will be 
-forwarded to members via Facebook. Quorum will be 7 people (should be equal to 20% of
-your club’s membership or 7 people whichever is more) for general meetings and 2 
-(should be equal to 50% of your exec +1 or 2 people whichever is more) for executive 
+forwarded to members via Facebook. Quorum will be 7 peoplefor general meetings and 2 for executive 
 meetings. An emergency meeting can be called by any executive via Facebook and must sent 
 at least 48 hours prior to the meeting time. 
 
